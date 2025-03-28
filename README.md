@@ -1,5 +1,5 @@
 # github.com-neifantoniogebranfrangie
-👍# 👋 Hola, soy Neif Antonio Gebran Frangie  ### 🚀 Empresario | Desarrollador Estratégico | Innovador Digital  Soy un profesional enfocado en transformar ideas en soluciones concretas.o
+👍# 👋 Hola, soy Neif Antonio Gebran Frangie  ### 🚀 Empresario | Desarrollador Estratégico | Innovador Digital  Soy un profesional enfocado en transformar ideas en soluciones concretas.
 ## 🌐 Sobre Mí
 
 Soy el fundador de diversas iniciativas centradas en el crecimiento económico, el desarrollo comunitario y la transformación digital. Con experiencia en sectores como alimentación, emprendimiento social y tecnología, me considero un profesional comprometido con la evolución constante, la educación continua y el liderazgo con propósito.
